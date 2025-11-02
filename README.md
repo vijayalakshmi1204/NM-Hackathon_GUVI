@@ -1,1 +1,1 @@
-https://github.com/vijayalakshmi1204/NM-Hackathon_GUVI/upload
+https://www.figma.com/design/BnjRGje3yujldTlLpPhOtm/Smart-Healthcare-Appointment-System?t=oVqQx6sLiVYFKEnv-0
